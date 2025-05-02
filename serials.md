@@ -184,6 +184,7 @@
 183. Маг-целитель: Новый старт (1 сезон)
 184. Невероятный новичок средних лет, прошедший тренировки на грани смерти / Shinmai Ossan Boukensha, Saikyou Party ni Shinu hodo Kitaerarete Muteki ni Naru. (1 сезон)
 185. Новые врата / The New Gate (1 сезон)
+186. Неправильный способ использования исцеляющей магии / Chiyu Mahou no Machigatta Tsukaikata (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
