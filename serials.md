@@ -189,6 +189,7 @@
 188. Хотя я только первого уровня, но с этим уникальным навыком я стану сильнейшим / Level 1 dakedo Unique Skill de Saikyou desu (1 сезон, проходняк)
 189. Я получил читерские способности в другом мире и стал экстраординарным в реальном мире: История о том, как повышение уровня изменило мою жизнь / I Got a Cheat Skill in Another World and Became Unrivaled in The Real World, Too (1 сезон)
 190. Невообразимые приключения перерождённого дворянина / Tensei Kizoku no Isekai Boukenroku: Jichou wo Shiranai Kamigami no Shito (1 сезон)
+191. Реинкарнация сильнейшего оммёдзи: Эти монстры слишком слабы по сравнению с моим ёкаем / Saikyou Onmyouji no Isekai Tenseiki (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
