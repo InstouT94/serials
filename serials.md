@@ -191,6 +191,7 @@
 190. Невообразимые приключения перерождённого дворянина / Tensei Kizoku no Isekai Boukenroku: Jichou wo Shiranai Kamigami no Shito (1 сезон)
 191. Реинкарнация сильнейшего оммёдзи: Эти монстры слишком слабы по сравнению с моим ёкаем / Saikyou Onmyouji no Isekai Tenseiki (1 сезон)
 192. Мастер на все руки Сайто в другом мире / Benriya Saitou-san, Isekai ni Iku (1 сезон - 6 серий)
+193. Волшебник ледяного клинка правит миром / Hyouken no Majutsushi ga Sekai wo Suberu (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
