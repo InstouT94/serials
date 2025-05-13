@@ -193,6 +193,7 @@
 192. Мастер на все руки Сайто в другом мире / Benriya Saitou-san, Isekai ni Iku (1 сезон - 6 серий)
 193. Волшебник ледяного клинка правит миром / Hyouken no Majutsushi ga Sekai wo Suberu (1 сезон)
 194. Для тебя, Бессмертный / Fumetsu no Anata e (1 сезон)
+195. Перерождение Дяди / Isekai Ojisan (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
