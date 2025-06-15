@@ -199,6 +199,7 @@
 198. Перестану быть героем / Yuusha, Yamemasu (1 сезон)
 199. Неспешная жизнь уволенного тёмного солдата (тридцати лет) / Kaiko sareta Ankoku Heishi (30-dai) no Slow na Second Life (1 сезон)
 200. Жизнь сорокалетнего мужчины в другом мире / Around 40 Otoko no Isekai Tsuuhan (1 сезон)
+201. Создатель магии: Как создать волшебство в другом мире / Magic Maker: Isekai Mahou no Tsukurikata (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
