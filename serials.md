@@ -200,7 +200,7 @@
 199. Неспешная жизнь уволенного тёмного солдата (тридцати лет) / Kaiko sareta Ankoku Heishi (30-dai) no Slow na Second Life (1 сезон)
 200. Жизнь сорокалетнего мужчины в другом мире / Around 40 Otoko no Isekai Tsuuhan (1 сезон)
 201. Создатель магии: Как создать волшебство в другом мире / Magic Maker: Isekai Mahou no Tsukurikata (1 сезон)
-202. Покинув группу А-ранга, я направился вместе со своими бывшими учениками в глубины лабиринта / A-Rank Party wo Ridatsu shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu. (1 сезон 9 серий)
+202. Покинув группу А-ранга, я направился вместе со своими бывшими учениками в глубины лабиринта / A-Rank Party wo Ridatsu shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu. (1 сезон 10 серий)
 
 # Сериалы
 1. Во все тяжкие
