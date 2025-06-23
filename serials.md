@@ -206,6 +206,7 @@
 205. Однажды я стану величайшим алхимиком? / Izure Saikyou no Renkinjutsushi? (1 сезон)
 206. Многоцветье / Colorful
 207. Непобедимый святой: Путь, которым я иду, чтобы выжить в другом мире / Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi (1 сезон)
+208. Самый известный диктор создаёт самый великий в мире клан / Saikyou no Shienshoku "Wajutsushi" de Aru Ore wa Sekai Saikyou Clan wo Shitagaeru (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
