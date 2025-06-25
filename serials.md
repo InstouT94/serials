@@ -208,6 +208,7 @@
 207. Непобедимый святой: Путь, которым я иду, чтобы выжить в другом мире / Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi (1 сезон)
 208. Самый известный диктор создаёт самый великий в мире клан / Saikyou no Shienshoku "Wajutsushi" de Aru Ore wa Sekai Saikyou Clan wo Shitagaeru (1 сезон)
 209. Я стал самым сильным с провальным навыком «ненормальное состояние», я разрушу всё / Hazurewaku no "Joutai Ijou Skill" de Saikyou ni Natta Ore ga Subete wo Juurin suru made (1 сезон)
+210. Кайдзю №8 / Kaijuu 8-gou (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
