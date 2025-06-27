@@ -210,6 +210,7 @@
 209. Я стал самым сильным с провальным навыком «ненормальное состояние», я разрушу всё / Hazurewaku no "Joutai Ijou Skill" de Saikyou ni Natta Ore ga Subete wo Juurin suru made (1 сезон)
 210. Кайдзю №8 / Kaijuu 8-gou (1 сезон)
 211. Меня выгнали из гильдии героев, потому что я был плохим компаньоном, поэтому я решил неспешно жить в глуши / Banished from the Heroes' Party (1 сезон)
+212. Злодейка девяносто девятого уровня: «Я босс, но не король демонов» / Akuyaku Reijou Level 99: Watashi wa Ura-Boss desu ga Maou dewa Arimasen (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
