@@ -213,6 +213,7 @@
 212. Злодейка девяносто девятого уровня: «Я босс, но не король демонов» / Akuyaku Reijou Level 99: Watashi wa Ura-Boss desu ga Maou dewa Arimasen (1 сезон)
 213. Монолог фармацевта / Kusuriya no Hitorigoto (1 сезон)
 214. Королева со скальпелем / Gekai Elise (1 сезон)
+215. Другой мир не может противостоять силе мгновенной смерти / Sokushi Cheat ga Saikyou sugite, Isekai no Yatsura ga Marude Aite ni Naranai n desu ga. (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
