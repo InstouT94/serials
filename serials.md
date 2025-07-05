@@ -211,7 +211,7 @@
 210. Кайдзю №8 / Kaijuu 8-gou (1 сезон)
 211. Меня выгнали из гильдии героев, потому что я был плохим компаньоном, поэтому я решил неспешно жить в глуши / Banished from the Heroes' Party (1 сезон)
 212. Злодейка девяносто девятого уровня: «Я босс, но не король демонов» / Akuyaku Reijou Level 99: Watashi wa Ura-Boss desu ga Maou dewa Arimasen (1 сезон)
-213. Монолог фармацевта / Kusuriya no Hitorigoto (1 сезон)
+213. Монолог фармацевта / Kusuriya no Hitorigoto (1-2 сезон)
 214. Королева со скальпелем / Gekai Elise (1 сезон)
 215. Другой мир не может противостоять силе мгновенной смерти / Sokushi Cheat ga Saikyou sugite, Isekai no Yatsura ga Marude Aite ni Naranai n desu ga. (1 сезон)
 216. Я делаю всё возможное, чтобы чувствовать себя как дома в другом мире / Isekai de Mofumofu Nadenade suru Tame ni Ganbattemasu. (1 сезон - 5 серий, слишком детское)
