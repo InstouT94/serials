@@ -215,6 +215,7 @@
 214. Королева со скальпелем / Gekai Elise (1 сезон)
 215. Другой мир не может противостоять силе мгновенной смерти / Sokushi Cheat ga Saikyou sugite, Isekai no Yatsura ga Marude Aite ni Naranai n desu ga. (1 сезон)
 216. Я делаю всё возможное, чтобы чувствовать себя как дома в другом мире / Isekai de Mofumofu Nadenade suru Tame ni Ganbattemasu. (1 сезон - 5 серий, слишком детское)
+217. Хельк / Helck (1 сезон - 10 серий)
 
 # Сериалы
 1. Во все тяжкие
