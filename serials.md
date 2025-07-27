@@ -219,6 +219,7 @@
 218. Ненасытный Берсерк / Boushoku no Berserk (1 сезон)
 219. Кулинарные скитания в параллельном мире / Tondemo Skill de Isekai Hourou Meshi (1 сезон)
 220. Сбережение восьмидесяти тысяч золотых монет в другом мире к моей старости / Rougo ni Sonaete Isekai de 8-manmai no Kinka wo Tamemasu (1 сезон)
+221. Адский рай / Jigokuraku (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
