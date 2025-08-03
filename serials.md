@@ -161,7 +161,7 @@
 160. Я же просила сделать меня обычной! (1 сезон)
 161. Инструктор кандидатов в воздушные боевые маги (1 сезон)
 162. Избранный богами / Kami-tachi ni Hirowareta Otoko (1 сезон)
-163. Вечная воля / Yi Nian Yong Heng (1-2 сезон)
+163. Вечная воля / Yi Nian Yong Heng (1-3 сезон)
 164. Магическая битва / Jujutsu Kaisen (1 сезон)
 165. История о пареньке из деревни, расположенной перед сложнейшим подземельем / Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari (1 сезон, глупый и наивный сюжет)
 166. Сильнейший герой, обученный в тайном подземелье! / Ore dake Haireru Kakushi Dungeon (1 сезон, такое себе)
