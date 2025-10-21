@@ -185,7 +185,7 @@
 184. Невероятный новичок средних лет, прошедший тренировки на грани смерти / Shinmai Ossan Boukensha, Saikyou Party ni Shinu hodo Kitaerarete Muteki ni Naru. (1 сезон)
 185. Новые врата / The New Gate (1 сезон)
 186. Неправильный способ использования исцеляющей магии / Chiyu Mahou no Machigatta Tsukaikata (1 сезон)
-187. Поднятие уровня в одиночку / Solo Leveling (1 сезон)
+187. Поднятие уровня в одиночку / Solo Leveling (1-2 сезон)
 188. Хотя я только первого уровня, но с этим уникальным навыком я стану сильнейшим / Level 1 dakedo Unique Skill de Saikyou desu (1 сезон, проходняк)
 189. Я получил читерские способности в другом мире и стал экстраординарным в реальном мире: История о том, как повышение уровня изменило мою жизнь / I Got a Cheat Skill in Another World and Became Unrivaled in The Real World, Too (1 сезон)
 190. Невообразимые приключения перерождённого дворянина / Tensei Kizoku no Isekai Boukenroku: Jichou wo Shiranai Kamigami no Shito (1 сезон)
