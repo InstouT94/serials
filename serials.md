@@ -87,7 +87,7 @@
 86. Моб Психо 100 (1 сезон)
 87. Сотня / Hundred (1 сезон)
 88. Книга магии для начинающих с нуля / Zero kara Hajimeru Mahou no Sho (1 сезон)
-89. Повседневная Жизнь Бессмертного Короля / The Daily Life of the Immortal King (1 сезон)
+89. Повседневная Жизнь Бессмертного Короля / The Daily Life of the Immortal King (1 сезон, 2 сезон - 8 серий)
 90. Смертельный укус / Killing Bites (1 сезон)
 91. Грэй-мен / D.Gray-man (1-2 сезон)
 92. Доблесть рыцаря-неудачника / Rakudai Kishi no Cavalry (1 сезон)
