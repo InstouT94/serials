@@ -165,7 +165,7 @@
 164. Магическая битва / Jujutsu Kaisen (1 сезон)
 165. История о пареньке из деревни, расположенной перед сложнейшим подземельем / Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari (1 сезон, глупый и наивный сюжет)
 166. Сильнейший герой, обученный в тайном подземелье! / Ore dake Haireru Kakushi Dungeon (1 сезон, такое себе)
-167. Реинкарнация безработного: История о приключениях в другом мире / Mushoku Tensei: Isekai Ittara Honki Dasu (1 сезон, средне)
+167. Реинкарнация безработного: История о приключениях в другом мире / Mushoku Tensei: Isekai Ittara Honki Dasu (1-2 сезон)
 168. Басня / The Fable (1 сезон)
 169. Человек-бензопила (1 сезон)
 170. Ремейк нашей жизни (1 сезон)
