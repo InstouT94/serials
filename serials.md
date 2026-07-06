@@ -265,6 +265,7 @@
 264. Адский режим: Геймер, который любит спидран, становится бесподобным в параллельном мире с устаревшими настройками / Hell Mode: Yarikomizuki no Gamer wa Hai Settei no Isekai de Musou suru (1 сезон)
 265. Весёлая защита владений беспечного лорда: Превращение безымянной деревни в неприступную крепость с помощью производственной магии / Okiraku Ryoushu no Tanoshii Ryouchi Bouei: Seisankei Majutsu de Na mo Naki Mura wo Saikyou no Jousai Toshi ni (1 сезон)
 266. Реинкарнация аристократа: Благословенный с рождения величайшей силой / Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara wo Eru (1 сезон)
+267. Мастера на все руки выгнали из отряда героев / Yuusha Party wo Oidasareta Kiyoubinbou (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
