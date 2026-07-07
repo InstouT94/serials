@@ -267,6 +267,7 @@
 266. Реинкарнация аристократа: Благословенный с рождения величайшей силой / Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara wo Eru (1 сезон)
 267. Мастера на все руки выгнали из отряда героев / Yuusha Party wo Oidasareta Kiyoubinbou (1 сезон)
 268. Мой статус убийцы очевидно превосходит геройский / Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga (1 сезон - 4 серии, унылая херня)
+269. Старик из деревни становится Святым мечом / Katainaka no Ossan, Kensei ni Naru (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
