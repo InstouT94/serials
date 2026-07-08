@@ -268,6 +268,7 @@
 267. Мастера на все руки выгнали из отряда героев / Yuusha Party wo Oidasareta Kiyoubinbou (1 сезон)
 268. Мой статус убийцы очевидно превосходит геройский / Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga (1 сезон - 4 серии, унылая херня)
 269. Старик из деревни становится Святым мечом / Katainaka no Ossan, Kensei ni Naru (1 сезон)
+270. Непонятый владелец мастерской (Мастер Ателье) Обычная история о бывшем работнике героического отряда, который на самом деле имел звание SSS за что-либо, кроме боя / Kanchigai no Koubou Nushi, The Unaware Atelier Master (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
