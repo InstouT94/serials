@@ -271,6 +271,7 @@
 270. Непонятый владелец мастерской (Мастер Ателье) Обычная история о бывшем работнике героического отряда, который на самом деле имел звание SSS за что-либо, кроме боя / Kanchigai no Koubou Nushi, The Unaware Atelier Master (1 сезон)
 271. Худшая работа «оценщика» оказалась самой сильной / Fuguushoku "Kanteishi" ga Jitsu wa Saikyou Datta (1 сезон)
 272. Перерождение: Монстр / Re:Monster (1 сезон)
+273. Злодейка наслаждается своей седьмой жизнью в качестве свободолюбивой невесты во вражеской стране / Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuu Kimama na Hanayome Seikatsu wo Mankitsu suru (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
