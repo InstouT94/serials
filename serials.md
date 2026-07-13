@@ -272,6 +272,7 @@
 271. Худшая работа «оценщика» оказалась самой сильной / Fuguushoku "Kanteishi" ga Jitsu wa Saikyou Datta (1 сезон)
 272. Перерождение: Монстр / Re:Monster (1 сезон)
 273. Злодейка наслаждается своей седьмой жизнью в качестве свободолюбивой невесты во вражеской стране / Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuu Kimama na Hanayome Seikatsu wo Mankitsu suru (1 сезон)
+274. Боевой отряд «Полный провал» / Sentai Daishikkaku (1 сезон)
 
 # Сериалы
 1. Во все тяжкие
