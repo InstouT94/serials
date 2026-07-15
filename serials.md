@@ -273,7 +273,7 @@
 272. Перерождение: Монстр / Re:Monster (1 сезон)
 273. Злодейка наслаждается своей седьмой жизнью в качестве свободолюбивой невесты во вражеской стране / Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuu Kimama na Hanayome Seikatsu wo Mankitsu suru (1 сезон)
 274. Боевой отряд «Полный провал» / Sentai Daishikkaku (1 сезон)
-275. Меч и жезл Вистории / Tsue to Tsurugi no Wistoria (1 сезон)
+275. Меч и жезл Вистории / Tsue to Tsurugi no Wistoria (1-2 сезон)
 276. Повелитель демонов 2099 / Maou 2099 (1 сезон)
 
 # Сериалы
