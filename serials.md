@@ -280,7 +280,7 @@
 279. Противостояние святого / Xian Ni (100 серий)
 280. На самом деле, я самый сильный? / Jitsu wa Ore, Saikyou deshita? (1 сезон)
 281. Я выживу с помощью зелий! / Potion-danomi de Ikinobimasu! (1 сезон)
-282. Перевоплотившийся король-герой, ставший самой сильной ученицей рыцаря / Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi (6 серий)
+282. Перевоплотившийся король-герой, ставший самой сильной ученицей рыцаря / Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi (7 серий)
 283. Смертельная игра мёртвой горы / Dead Mount Death Play (7 серий)
 
 # Сериалы
