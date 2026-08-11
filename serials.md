@@ -277,7 +277,7 @@
 276. Повелитель демонов 2099 / Maou 2099 (1 сезон)
 277. Прощай, жизнь дракона. Здравствуй, жизнь человека / Sayounara Ryuusei, Konnichiwa Jinsei (1 сезон 4 серии)
 278. Игра на триллион / Trillion Game (1 сезон)
-279. Противостояние святого / Xian Ni (106 серий)
+279. Противостояние святого / Xian Ni (107 серий)
 280. На самом деле, я самый сильный? / Jitsu wa Ore, Saikyou deshita? (1 сезон)
 281. Я выживу с помощью зелий! / Potion-danomi de Ikinobimasu! (1 сезон)
 282. Перевоплотившийся король-герой, ставший самой сильной ученицей рыцаря / Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi (1 сезон 7 серий)
