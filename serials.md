@@ -283,6 +283,7 @@
 282. Перевоплотившийся король-герой, ставший самой сильной ученицей рыцаря / Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi (1 сезон 7 серий)
 283. Смертельная игра мёртвой горы / Dead Mount Death Play (1 сезон)
 284. Магистр Дьявольского культа / Mo Dao Zu Shi (1 сезон 3 серии)
+285. Я сказала, усредни мои способности! / Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! (1 сезон - 7 серий)
 
 # Сериалы
 1. Во все тяжкие
